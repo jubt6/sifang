@@ -2,4 +2,4 @@
 
 永久域名：jubt.vip
 
-站长Telegram：@ddlaodi
+站长Telegram： https://t.me/ddlaodi
