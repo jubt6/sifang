@@ -16,9 +16,9 @@
 
 ………………………………………………………… 
 
-永久域名-需翻墙挂VPN访问【 hg.cool 】
+永久域名-需翻墙挂VPN访问【 https://hg.cool 】
 
-当前国内免VPN访问地址【 heigua1.com 】
+当前国内免VPN访问地址【 https://heigua1.com 】
 
 黑瓜网-中文吃瓜爆料第一站-独家一手黑瓜 
 
